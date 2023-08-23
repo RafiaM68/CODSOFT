@@ -1,6 +1,6 @@
  
 # CODSOFT
-For Tech Internship, I am uploading my Required Tasks for CODSOFT as a Graphic Designer.
+For Tech Internship, I am uploading my Required Tasks for CODSOFT as a UI/UX Designer.
 
 
         -----------    Via Linkedin  ( linkedin.com/in/rafia-mehmood-5bb795229)     -----------
